@@ -1,2 +1,2 @@
 Kyrylo Kholodenko 529
-👑 Bogdan Bondarenko 👑
+👑 Bogdan Kovalenko 👑
